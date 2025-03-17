@@ -1,4 +1,4 @@
-# 🚀 **DỰ ĐOÁN XU HƯỚNG PHIMPHIM** 🎬
+# 🎬 **DỰ ĐOÁN XU HƯỚNG PHIM** 
 
 ---
 
